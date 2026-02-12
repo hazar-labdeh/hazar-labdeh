@@ -1,6 +1,7 @@
 -  Hi, I’m hazar Abulabdeh
--  I’m interested in AI and software engineering
--  I’m currently learning computer science
+-  no vibe coding here!!!!
+-  not all my project are here but i'm working on it
+-  CS major 
 -  How to reach me hazaar.abulabdeh@gmail.com
 -  Fun fact: also an artist 
 
